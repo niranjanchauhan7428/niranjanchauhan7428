@@ -1,11 +1,11 @@
-## Hi there 👋
+## Hi amisha baby
+you are my baby
+<!--love you
+**tum meri jaan ho baby✨ _special_ ✨ .
 
-<!--
-**niranjanchauhan7428/niranjanchauhan7428** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Here are some ideas to get you started: will you marry me
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
+- 🔭 I’m currently working on ...tum mere baccho ki maa banogi
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
